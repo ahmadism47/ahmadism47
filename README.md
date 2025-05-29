@@ -33,4 +33,5 @@ I’m also driven by personal development — I enjoy reading about human behavi
 
 ### 📫 Let’s Connect
 - 🔗 [LinkedIn] https://www.linkedin.com/in/ahmd-ismail909
+- 🔗 [Personal website] https://blog-us.it.com
 - 📬 ahmad.nismail9@gamil.com
